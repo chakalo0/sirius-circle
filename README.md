@@ -8,7 +8,7 @@
 
 **Le SIRIUS CIRCLE** n’est pas une énième formation. C’est LE cercle fermé des entrepreneurs qui utilisent l’Intelligence Artificielle pour créer leur empire digital et leur liberté financière.
 
-> 👉[**Arrête de rêver ta vie, construis-la.**](https://www.skool.com/sirius-circle/about?ref=b2f9a29d75bd4d83a6ca4fecf2541262)
+> 👉[**Arrête de rêver ta vie, construis-la.**](https://taap.it/sirius-circle-fr)
 
 ---
 
@@ -29,7 +29,7 @@ C’est un **cercle privé** pour les entrepreneurs qui veulent :
 
 🔒 Accès exclusif. Transformation garantie.
 
-➡️ [**REJOINDRE LE CIRCLE MAINTENANT**](https://www.skool.com/sirius-circle/about?ref=b2f9a29d75bd4d83a6ca4fecf2541262)
+➡️ [**REJOINDRE LE CIRCLE MAINTENANT**](https://taap.it/sirius-circle-fr)
 
 ---
 
@@ -44,7 +44,7 @@ C’est un **cercle privé** pour les entrepreneurs qui veulent :
 
 📦 Tout est là pour transformer ta vie **en 30 jours**.
 
-➡️ [**DÉMARRER MA TRANSFORMATION**](https://www.skool.com/sirius-circle/about?ref=b2f9a29d75bd4d83a6ca4fecf2541262)
+➡️ [**DÉMARRER MA TRANSFORMATION**](https://taap.it/sirius-circle-fr)
 
 ---
 
@@ -66,7 +66,7 @@ Vends des produits IA sans audience, sans budget, sans compétences techniques.
 > *"En 48h, j’ai déjà réussi à atteindre les 1000$ grâce à l'affiliation de Sirius Circle, j’y croyais pas mais c’est vraiment possible. Vous aussi vous pouvez le faire."*  
 — **Richard Marvyn**
 
-➡️ [**JE VEUX LES MÊMES RÉSULTATS**](https://www.skool.com/sirius-circle/about?ref=b2f9a29d75bd4d83a6ca4fecf2541262)
+➡️ [**JE VEUX LES MÊMES RÉSULTATS**](https://taap.it/sirius-circle-fr)
 
 ---
 
@@ -76,11 +76,11 @@ Chaque jour que tu hésites, d’autres construisent leur empire.
 
 💡 **Rejoins l’élite ou reste spectateur.**
 
-➡️ [**REJOINDRE LE SIRIUS CIRCLE**](https://www.skool.com/sirius-circle/about?ref=b2f9a29d75bd4d83a6ca4fecf2541262)
+➡️ [**REJOINDRE LE SIRIUS CIRCLE**](https://taap.it/sirius-circle-fr)
 
 ---
 
 ## 🧠 Envie d’une autre formation IA business ?
 
 👉 Découvre aussi nos autres guides pour créer un **business IA rentable** sans expérience technique.  
-➡️ [Voir toutes les ressources IA](https://www.skool.com/sirius-circle/about?ref=b2f9a29d75bd4d83a6ca4fecf2541262)
+➡️ [Voir toutes les ressources IA](https://taap.it/sirius-circle-fr)
